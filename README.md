@@ -2,7 +2,7 @@
 
 ###
 
-<img align="right" height="150" src="https://media1.tenor.com/m/72G-07728-gAAAAC/lotte-lwa.gif"  />
+<img align="left" height="150" src="https://media1.tenor.com/m/72G-07728-gAAAAC/lotte-lwa.gif"  />
 
 ###
 
